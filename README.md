@@ -19,7 +19,7 @@
 
 - 📫 How to reach me **noreply@vnetworksecurity.co.uk**
 
-- ⚡ Fun fact **I am half Japanese/British**
+- ⚡ Fun fact **I am speak Japanese/English**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
